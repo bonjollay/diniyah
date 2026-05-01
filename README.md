@@ -1,0 +1,2 @@
+# diniyah
+madrasah diniyah
